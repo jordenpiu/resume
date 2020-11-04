@@ -1,0 +1,2 @@
+# resume
+Hello, I believe that I am a happy go lucky girl, interested in automation and lover of robotics. Learning and working with an amazing team belonging to same community. Dream is to make my dreams fly, (make affordable UAV for smart work). Feel free to contact me, I am always there to discuss problems and develop ideas. "Lone wolf is great but  pack of them changes the game. Winter is here, assemble to rise."
